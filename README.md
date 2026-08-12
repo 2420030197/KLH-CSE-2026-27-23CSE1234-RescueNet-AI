@@ -1,0 +1,1 @@
+# KLH-CSE-2026-27-23CSE1234-RescueNet-AI
